@@ -34,5 +34,7 @@ His will and purpose
 
 _Mar 5:12 " and they begged him, saying, 'Send us to the pigs; let us enter them.'"_
 
-	kung yung Legion nanghihingi ng persimission kay Hesus para lang wag palayasin sa lugar at pumasok na lang sa baboy. ikaw naka ilang desisyon ka sa buhay mo ng hindi dumaan sa pag tatanong kung kalooban ba to ng diyos o hindi? wag ganon omat. haha
+__rand__ - kung yung Legion nanghihingi ng persimission kay Hesus para lang wag palayasin
+sa lugar at pumasok na lang sa baboy. ikaw naka ilang desisyon ka sa buhay mo ng 
+hindi dumaan sa pag tatanong kung kalooban ba to ng diyos o hindi? wag ganon omat. haha
 
