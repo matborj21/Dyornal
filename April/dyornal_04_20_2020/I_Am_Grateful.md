@@ -1,8 +1,8 @@
-I am grateful
+## I am grateful
 
 
-Mat 19:25  When the disciples heard this, they were greatly astonished, saying, “Who then can be saved?” 
-Mat 19:26  But Jesus looked at them and said, “With man this is impossible, but with God all things are possible.”
+_Mat 19:25" When the disciples heard this, they were greatly astonished, saying, 'Who then can be saved?'"
+Mat 19:26" But Jesus looked at them and said, 'With man this is impossible, but with God all things are possible."_
 
 I am grateful I do not need to do the impossible things in my life. I don't need to be powerful to be saved. or need to do something great just to prove myself to God. In all kinds of limitations of myself in this area that I am so grateful for. 
 
@@ -20,4 +20,4 @@ now that you are saved God wants you to focus on the possible things. what are t
 Do the possible, let God take care the impossible.
 
 
--jmfborje
+__-jmfborje__

@@ -1,36 +1,35 @@
-Karungan, kalaaman, at kamalayan
+#Karungan, kalaaman, at kamalayan
 
 
-ito ang tatlong bagay na dapat lagi mong bantayan.
+_ito ang tatlong bagay na dapat lagi mong bantayan._
 
-sino at kanino mo nakukuha ang karungan?
+__sino at kanino mo nakukuha ang karungan?__
 
 
-"He answered them, “And why do you break the commandment of God for the sake of your tradition? " - Matthew 15: 3
+_"He answered them, 'And why do you break the commandment of God for the sake of your tradition?'" - Matthew 15: 3_
 
 minsan kung sino pa yung maraming alam sila hndi marunong umunawa ng kalooban ng diyos. at wag kang maging katulad ng pariseo
 
-"Mat 15:16  And he said, “Are you also still without understanding? " Matthew 15:16
+_"Mat 15:16ï¿½ And he said, ï¿½Are you also still without understanding?ï¿½" Matthew 15:16_
 
 yung akala mo dahil malapit ka kay Hesus naiintindihan mo na sya. mali ka dyan kapatid. ang tunay na nakaka unawa ng diyos hindi lang yung malapit kundi yung may relasyo sa kanuya
 
 laging mong hanapin kung ano ang gusto sabihin ng diyos wag huwag yung gusto mo lang.
------
-
-saan at kailan mo dapat gamitin ang kaalaman
 
 
-Mat 16:16  Simon Peter replied, “You are the Christ, the Son of the living God.” 
-Mat 16:17  And Jesus answered him, “Blessed are you, Simon Bar-Jonah! For flesh and blood has not revealed this to you, but my Father who is in heaven. 
+__saan at kailan mo dapat gamitin ang kaalaman__
+
+
+_Mat 16:16ï¿½ Simon Peter replied, ï¿½You are the Christ, the Son of the living God.ï¿½ï¿½
+Mat 16:17ï¿½ And Jesus answered him, ï¿½Blessed are you, Simon Bar-Jonah! For flesh and blood has not revealed this to you, but my Father who is in heaven.ï¿½_
 
 ito ang lagi mong maging hangad sa buhay mo. yung lahat ng karunungan na maiisip mo galing sa rhema ng diyos ibang klase tagumpay ang kalalabasan non maniwala ka
 chirst wants us to seek the answer not from ourself but from the rhema of the word of God.
 
-----
 
-paano mo magagamit ang makalayan
+__paano mo magagamit ang makalayan__
 
-Mat 16:23 But he turned and said to Peter, “Get behind me, Satan! You are a hindrance to me. For you are not setting your mind on the things of God, but on the things of man.” 
+_Mat 16:23 But he turned and said to Peter, ï¿½Get behind me, Satan! You are a hindrance to me. For you are not setting your mind on the things of God, but on the things of man.ï¿½ï¿½_
 
 kung lagi mong pangungunahana ang plano ng diyos tingin sayo ng diyos dimunyu hahah
 laging pang hawakan yung rhema ng dyios para di nasasabo ng dyos hahah gg si pedro e. kaka puri lang sakanya sa isang tapos rebuke agad dito sa verse na to hahah

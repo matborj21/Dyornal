@@ -1,11 +1,11 @@
-Mapalad ang may pangarap
+#Mapalad ang may pangarap
 
 
-ang pangarap na malinaw na pag tanaw, may malinaw na pag galaw.
+__*ang pangarap na malinaw na pag tanaw, may malinaw na pag galaw.*__
 
 
-Matthew 13:17
-For truly I tell you, many prophets and righteous people longed to see what you see but did not see it, and to hear what you hear but did not hear it.
+__Matthew 13:17__
+* For truly I tell you, many prophets and righteous people longed to see what you see but did not see it, and to hear what you hear but did not hear it.
 
 
 napaka palad ko na isa ako sa mga taong naka enkwentrobang diyos ng malapitan at ng personalan.
