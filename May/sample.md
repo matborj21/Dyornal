@@ -1,4 +1,4 @@
 ## Sample
 
 __S__ - _sample_
- - bullet
+ - __bullet__ - samplt bullet
